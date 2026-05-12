@@ -1,6 +1,6 @@
 # <p align="center"> [◉°] mr. e 
 
-<p align="center"> he/she. harvey dent fan number one. c+h always. roleplay is fine in whispers.
+<p align="center"> he/she. harvey dent fan number one. roleplay is fine in whispers. c+h always.
 
 <p align="center"> proshippers and batjokes antis do not interact. outlast fans interact with caution. riddlebat makes me uncomfortable.
 
