@@ -2,7 +2,7 @@
 
 <p align="center"> he/she. harvey dent fan number one. roleplay is fine in whispers.
 
-<p align="center">  i have nobody <i>permanently</i> hidden, but i do hide freely. i don't mind being asked why i have someone hidden.
+<p align="center">  i have nobody <i>permanently</i> hidden, but i do hide freely. i don't mind being asked why i have someone blocked
 
 <p align="center"> if i accidentally interact and i'm in your dni/vice versa, please just block or let me know! it was an accident. no need to be nasty.
 
