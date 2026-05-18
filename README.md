@@ -1,6 +1,6 @@
 # <p align="center"> [◉°] mr. e
 
-<p align="center"> he/she. harvey dent fan number one. roleplay is fine in whispers.
+<p align="center"> he/she. harvey dent fan number one. c+h always encouraged. roleplay is fine in whispers.
 
 <p align="center">  i have nobody <i>permanently</i> hidden, but i do hide freely. i don't mind being asked why i have someone blocked.
 
