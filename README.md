@@ -1,6 +1,6 @@
 # <p align="center"> [◉°] mr. e
 
-<p align="center"> proshippers, true crime community and batjokes antis <i>do not interact</i>.
+<p align="center"> minors, proshippers, true crime community and batjokes antis <i>do not interact</i>.
  
 <p align="center">  outlast and jason todd fans <i>interact with caution</i>. riddlebat makes me uncomfortable & i typically hide it.
 
