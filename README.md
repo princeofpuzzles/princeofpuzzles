@@ -1,5 +1,7 @@
 # <p align="center"> [◉°] mr. e
 
+<p align="center"> harvey dent's number one fan.
+
 <p align="center"> minors, proshippers, true crime community and batjokes antis <i>do not interact</i>.
 
 <p align="center"> if i interact with you and i'm in your dni/vice versa, please let me know or block me. it was an accident.
