@@ -8,7 +8,7 @@
  
 <p align="center"> outlast and jason todd fans <i>interact with caution</i>. riddlebat makes me uncomfortable & i typically temporarily hide it.
 
-<p align="center"> i hide freely. i don't mind being asked why i have someone blocked, but the chances of being unblocked are slim to none.
+<p align="center"> i hide freely & liberally. i don't mind being asked why i have someone blocked, but the chances of being unblocked are slim to none.
 
  
 
