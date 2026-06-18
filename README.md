@@ -11,3 +11,5 @@ happy gay month, cause you know you gay and stuff.
 <img width="528" height="600" alt="beuwbs-be-who-you-are" src="https://github.com/user-attachments/assets/d757e46b-40fc-438e-a608-59feff005595" />
 
 here go your gay ballon, cause it got all the colors cause it’s gay, and i got skittles cause it got a rainbow on it.
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=d7tajx07nf1cseqaa74pw4rbl&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
