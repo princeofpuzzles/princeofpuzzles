@@ -1,6 +1,6 @@
 # [◉°] mr. e ![](https://komarev.com/ghpvc/?username=princeofpuzzles&label=onlookers!)
 
-he/she. harvey dent's number one fan. veteran detective comics/outlast fan.
+he/she. harvey dent's number one fan. attempting to get more into the groove of being online.
 
 if i interact with you and i'm in your dni/vice versa, please let me know or block me. it was an accident.
 
